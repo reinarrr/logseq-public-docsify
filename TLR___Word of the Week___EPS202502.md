@@ -1,0 +1,47 @@
+public:: true
+- **SCRIPT**
+	- **Reinar:**
+		- It’s time for the Word of the Week, straight from The Living Room. This is a short moment reflection  designed to inspire and challenge you on your faith journey.
+	- **MUSIC STINGER**
+	- **Aimee (enthusiastic yet gentle):**
+		- Hello and welcome back to our living room! I’m Aimee—
+	- **Reinar (thoughtful):**
+		- —and I’m Reinar. Today we want to spend a little more time focusing on a powerful concept: **Repent**.
+	- **Aimee (setting context):**
+		- We’ve been reflecting on Acts 3:19, which says:
+		- > “Repent, then, and turn to God, so that your sins may be wiped out, that times of refreshing may come from the Lord.”
+		- I love how it offers both a *challenge* and a *promise*—the challenge to change direction, and the promise that God will bring real renewal.
+	- ---
+	- **Reinar (personal note):**
+		- You know, I’ve felt God nudging me about a negative attitude I’d let take root—basically a quiet resentment toward someone who hurt me. It wasn’t dramatic, but it weighed me down. God was saying, “It’s time to do a 180°. Turn around from that. Right here.”
+	- **Aimee (supportive):**
+		- That’s a vulnerable place to be. Repentance can sound intimidating, like it’s just about guilt or feeling bad. But in reality, repentance is an invitation to step away from what’s holding you back and into *times of refreshing*, as the verse says.
+	- **Reinar (expanding):**
+		- Exactly. When I decided to own up to that resentment, it felt like a weight lifted. I realised God wanted to free me from bitterness and replace it with His peace. It wasn’t overnight, but the process started when I said, “Lord, I’m ready to turn around.”
+	- ---
+	- **Aimee (practical steps):**
+		- Maybe you’re listening and wondering where to begin. How do I turn around and repent. Well, here are some handholds you can grab onto:
+			- 1.	**Pause & Pray**: Find a quiet moment—it could be first thing in the morning or before bed—and simply ask, “God, show me what needs to change in me.”
+			- 2.	**Name the Issue**: Is it anger, fear, an unhealthy habit? Be honest, even if it’s uncomfortable. Say that and surrender that to God.
+			- 3.	**Seek Accountability**: Share your change journey with a trusted friend, mentor, or a pastor. Opening up helps break the power of secrecy.
+			- 4.	**Take Action**: If you need to apologise, do it. If you need to set a boundary, start planning how. Repentance often involves a tangible step of obedience.
+	- **Reinar (reinforcing):**
+		- And remember, repentance is a daily rhythm, not a one-time event. For me, catching my attitude early each day—in prayer or by journaling—helps keep that 180° turn going.
+	- ---
+	- **Aimee (addressing Lent):**
+		- During Lent, we’re encouraged to search our hearts, let go of what’s toxic, and allow God to reshape our lives. It’s not about beating ourselves up; it’s about readiness for the Resurrection joy. Repentance is like spring cleaning for the soul.
+	- **Reinar (times of refreshing):**
+		- Yes. And that’s the real hope: God *wants* us to experience His refreshing. When we drop the baggage, there’s room for new life, fresh perspective, and deeper peace.
+	- ---
+	- **Aimee (wrapping Scripture insight):**
+	- So Acts 3:19 reminds us that repentance leads to *wiped-out sins* and *times of refreshing.* That’s God’s heart for us—He’s not looking to condemn. He wants to renew.
+	- **Reinar (Word of the Week conclusion):**
+	- And that’s why our Word of the Week is **Repent**. Maybe there’s an attitude, habit, or resentment you’ve been clinging to—take that 180° turn-around. You’ll find God right there, ready to bring healing and freedom.
+	- **Aimee (sign-off):**
+	- Thanks for spending time with us in our living room. We’re Aimee and Reinar—join us again soon for another Word of the Week!
+- ---
+- **Timing & Delivery Notes**
+- •	**Estimated Length**: ~3 minutes when read at a steady, conversational pace.
+- •	**Tone**: Warm, inviting, and honest—allowing for personal sharing and practical application.
+- •	**Core Scripture**: Acts 3:19 remains central, framed by a real-life anecdote and step-by-step guidance.
+- •	**Outcome**: Encourages listeners to embrace repentance as a path to forgiveness, renewal, and deeper communion with God.
