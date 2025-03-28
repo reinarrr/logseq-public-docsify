@@ -1,5 +1,5 @@
 public:: true
-- **SCRIPT**
+
 	- **Reinar:**
 		- It’s time for the Word of the Week, straight from The Living Room. This is a short moment reflection  designed to inspire and challenge you on your faith journey.
 	- **MUSIC STINGER**
@@ -40,8 +40,8 @@ public:: true
 	- **Aimee (sign-off):**
 	- Thanks for spending time with us in our living room. We’re Aimee and Reinar—join us again soon for another Word of the Week!
 - ---
-- **Timing & Delivery Notes**
-- •	**Estimated Length**: ~3 minutes when read at a steady, conversational pace.
-- •	**Tone**: Warm, inviting, and honest—allowing for personal sharing and practical application.
-- •	**Core Scripture**: Acts 3:19 remains central, framed by a real-life anecdote and step-by-step guidance.
-- •	**Outcome**: Encourages listeners to embrace repentance as a path to forgiveness, renewal, and deeper communion with God.
+- ### **Timing & Delivery Notes**
+	- **Estimated Length**: ~3 minutes when read at a steady, conversational pace.
+	- **Tone**: Warm, inviting, and honest—allowing for personal sharing and practical application.
+	- **Core Scripture**: Acts 3:19 remains central, framed by a real-life anecdote and step-by-step guidance.
+	- **Outcome**: Encourages listeners to embrace repentance as a path to forgiveness, renewal, and deeper communion with God.
