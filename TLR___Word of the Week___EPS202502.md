@@ -1,5 +1,6 @@
 public:: true
 
+- ## **SCRIPT**
 	- **Reinar:**
 		- It’s time for the Word of the Week, straight from The Living Room. This is a short moment reflection  designed to inspire and challenge you on your faith journey.
 	- **MUSIC STINGER**
