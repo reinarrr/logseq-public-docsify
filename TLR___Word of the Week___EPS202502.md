@@ -35,11 +35,11 @@ public:: true
 		- Yes. And that’s the real hope: God *wants* us to experience His refreshing. When we drop the baggage, there’s room for new life, fresh perspective, and deeper peace.
 	- ---
 	- **Aimee (wrapping Scripture insight):**
-	- So Acts 3:19 reminds us that repentance leads to *wiped-out sins* and *times of refreshing.* That’s God’s heart for us—He’s not looking to condemn. He wants to renew.
+		- So Acts 3:19 reminds us that repentance leads to *wiped-out sins* and *times of refreshing.* That’s God’s heart for us—He’s not looking to condemn. He wants to renew.
 	- **Reinar (Word of the Week conclusion):**
-	- And that’s why our Word of the Week is **Repent**. Maybe there’s an attitude, habit, or resentment you’ve been clinging to—take that 180° turn-around. You’ll find God right there, ready to bring healing and freedom.
+		- And that’s why our Word of the Week is **Repent**. Maybe there’s an attitude, habit, or resentment you’ve been clinging to—take that 180° turn-around. You’ll find God right there, ready to bring healing and freedom.
 	- **Aimee (sign-off):**
-	- Thanks for spending time with us in our living room. We’re Aimee and Reinar—join us again soon for another Word of the Week!
+		- Thanks for spending time with us in our living room. We’re Aimee and Reinar—join us again soon for another Word of the Week!
 - ---
 - ### **Timing & Delivery Notes**
 	- **Estimated Length**: ~3 minutes when read at a steady, conversational pace.
