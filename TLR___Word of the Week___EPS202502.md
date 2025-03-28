@@ -2,7 +2,7 @@ public:: true
 
 - ## **SCRIPT**
 	- **Reinar:**
-		- It’s time for the Word of the Week, straight from The Living Room. This is a short moment reflection  designed to inspire and challenge you on your faith journey.
+		- It’s time for the Word of the Week, straight from The Living Room. This is a short moment of reflection designed to inspire and challenge you on your faith journey.
 	- **MUSIC STINGER**
 	- **Aimee (enthusiastic yet gentle):**
 		- Hello and welcome back to our living room! I’m Aimee—
