@@ -1,0 +1,53 @@
+## Theme
+	- Recognising, Receiving, and Responding to the Presence and Power of the Holy Spirit
+- ## Part 1: The Spirit Upon Him
+	- ### Scripture Anchor: Luke 4:18-19 / Isaiah 61:1-2
+		- "The Spirit of the Lord is upon Me, because He has anointed Me to preach the gospel to the poor; He has sent Me to heal the brokenhearted, to proclaim liberty to the captives and recovery of sight to the blind, to set at liberty those who are oppressed; to proclaim the acceptable year of the Lord."
+	- ### Focus
+		- Recognising the Holy Spirit at work in the life and ministry of Jesus. The Spirit is not a side element—He is central to Jesus’ mission. And for us to recognise that the Holy Spirit central to our lives.
+	- ### Key Points
+		- Jesus begins His public ministry by declaring the Spirit is upon Him.
+		- The Holy Spirit is not optional in the life of the believer—it was essential even for Jesus.
+		- The Spirit's anointing is purposeful: healing, freedom, vision, and restoration.
+		- Tonight, we recognise the Spirit who anointed Jesus is still active today.
+	- ### Songs
+		- This is Jubilee
+		- Give You My Heart
+		- Holy Spirit
+		- Shekinah Glory
+- ## Part 2: The Spirit Within Us
+	- ### Scripture Anchor: Romans 8:11
+		- "But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who dwells in you."
+	- ### Focus
+		- Acknowledging that the same Holy Spirit that was with Jesus now dwells in us. The power that raised Christ is available and active in our lives today.
+	- ### Key Points
+		- The resurrection power is not distant—it’s indwelling.
+		- The Spirit is not only for anointed leaders, but for all believers.
+		- The Holy Spirit enables us to walk in victory, not just survival.
+		- We are temples of the Spirit—He lives in us, empowers us, and transforms us.
+	- ### Songs
+		- Come and Tear Down
+		- Holy Spirit Come
+		- Holy Spirit Come and Fill This Place
+		- Holy Spirit Rain Down
+		- Spirit of the Living God
+		- King of Kings - Also communion song
+	- ### Communion
+- ## Part 3: The Spirit Saturating Us
+	- ### Scripture Anchor: Acts 2:1-4 / Ephesians 5:18
+		- "They were all filled with the Holy Spirit..." "Be filled with the Spirit..."
+	- ### Focus
+		- Responding to the Spirit’s presence with hunger and surrender. Not just a moment of encounter, but a lifestyle of being filled and led by the Spirit.
+	- ### Key Points
+		- The Holy Spirit is not just to be known—He is to be welcomed.
+		- Saturation is about full immersion, not partial awareness.
+		- Ask: Are we making room for the Spirit in every part of our lives?
+		- The early church moved in boldness, unity, and power—because they were filled.
+		- Tonight, we invite the Spirit to fill this space, and more importantly, our lives.
+	- ### Songs
+		- More Like Jesus
+		- Make Room
+		- Hosanna
+		- Christ Be Magnified
+		- Be Magnified
+		- King of Kings
