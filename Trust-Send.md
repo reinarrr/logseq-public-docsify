@@ -1,0 +1,34 @@
+- ## **It's not about command-and-control--it's about trust-and-send.** 
+    - ### Command-and-Control: The Way of the World
+	        - In worldly systems, authority is often about tight control:
+	            - Who's in charge?
+	            - Who gives the orders?
+	            - Who holds the power?
+	            - Who gets to decide?
+	        - It's often rooted in hierarchy, fear, pressure, and performance.
+	        - You're only as good as your compliance.
+	            - Step out of line, and you're out. That's command-and-control.
+	        - This is how kings, empires, corporations, and even some churches have operated--where _obedience is extracted_, not invited.
+	        - Jesus doesn't build His Kingdom this way.
+    - ### Trust-and-Send: The Way of Jesus
+	        - Jesus doesn't rule by force--He leads by trust.
+	        - And He doesn't hoard authority--He shares it.  
+	        - Instead of controlling every move His disciples made, He said things like:
+	            - "As the Father sent Me, I am sending you." -- John 20:21
+	            - "I am giving you the keys of the Kingdom…" -- Matthew 16:19
+	            - "Go into all the world…" --Mark 16:15
+	            - "You will receive power when the Holy Spirit comes on you…" -- Acts 1:8
+	        - There's freedom in this model.
+	        - There's dignity.
+	        - There's a recognition of maturity and relationship.
+	        - He entrusts us--not because we're perfect, but because we're His.
+	        - He sends us--not because we've earned it, but because we've been with Him.
+    - ### Why This Is Important
+	        - If we misunderstand this, we'll relate to Jesus like a boss, not a Father.
+	        - Like soldiers waiting for orders, instead of sons and daughters walking in step.
+	        - Trust-and-send is rooted in:
+	            - Discipleship -- not domination.
+	            - Empowerment -- not micromanagement.
+	            - Love -- not fear.
+	        - Jesus trusts us because He has put His Spirit in us.
+	        - When we stay in close relationship with Him, we walk in that authority not with arrogance, but with assurance.

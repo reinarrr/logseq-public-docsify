@@ -1,10 +1,18 @@
-## Theme
+- [[TLR]]
+- ## Theme
 	- Recognising, Receiving, and Responding to the Presence and Power of the Holy Spirit
 - ## Part 1: The Spirit Upon Him
 	- ### Scripture Anchor: Luke 4:18-19 / Isaiah 61:1-2
 		- "The Spirit of the Lord is upon Me, because He has anointed Me to preach the gospel to the poor; He has sent Me to heal the brokenhearted, to proclaim liberty to the captives and recovery of sight to the blind, to set at liberty those who are oppressed; to proclaim the acceptable year of the Lord."
 	- ### Focus
-		- Recognising the Holy Spirit at work in the life and ministry of Jesus. The Spirit is not a side element—He is central to Jesus’ mission. And for us to recognise that the Holy Spirit central to our lives.
+		- Recognising the Holy Spirit at work in the life and ministry of Jesus. ==The Holy Spirit is not a side element—He is central to Jesus’ mission.==
+		- And for us to recognise that the Holy Spirit central to our lives.
+			- ((67eb5fd0-ea2e-48d1-bb9c-527a3ddb56b8))
+			- ##### **Unity and Submission Were the Source, Not Just the Fruit**
+				- Jesus’ unity with the Father wasn’t the *result* of His authority—it was the *foundation* for it.
+				- He **abided** in the Father. He spent nights in prayer. He lived in step with the Spirit.
+				- ==This tells us that **intimacy precedes influence**.==
+				- Authority doesn’t come from “climbing a spiritual ladder”—it comes from staying close to God’s heart.
 	- ### Key Points
 		- Jesus begins His public ministry by declaring the Spirit is upon Him.
 		- The Holy Spirit is not optional in the life of the believer—it was essential even for Jesus.
@@ -17,9 +25,23 @@
 		- Shekinah Glory
 - ## Part 2: The Spirit Within Us
 	- ### Scripture Anchor: Romans 8:11
-		- "But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who dwells in you."
+		- "But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who **dwells in you**."
 	- ### Focus
-		- Acknowledging that the same Holy Spirit that was with Jesus now dwells in us. The power that raised Christ is available and active in our lives today.
+		- Acknowledging that the same Holy Spirit that was with Jesus now dwells in us.
+		- The power that raised Christ is available and active in our lives today.
+		- ##### **Authority Flows Through Trust, Not Control**
+			- Because the Father trusted the Son, He entrusted Him with all authority.
+			- And because Jesus trusted the Father, He never needed to prove Himself.
+			- When you’re secure in who you’re aligned with, you don’t have to *force* authority—you **carry** it.
+			- That’s why Jesus could speak a word and demons obeyed, storms calmed, bodies healed.
+			- It wasn’t just *what* He said. It was *who* He was connected to.
+		- ##### **Why This Matters for Us**
+			- Sometimes we think spiritual authority is about **position**: titles, knowledge, platform, charisma.
+			- ==But the truth is, **authority flows through relationship**—with Jesus, through the Holy Spirit.==
+				- > “Remain in Me, and I will remain in you…” — John 15:4
+				- > “Apart from Me, you can do nothing.”
+			- So if we want to walk in authority and in power, we need to walk in **closeness**.
+			- Obedience, surrender, abiding. That’s what unlocks the authority we’ve been given.
 	- ### Key Points
 		- The resurrection power is not distant—it’s indwelling.
 		- The Spirit is not only for anointed leaders, but for all believers.
@@ -37,7 +59,15 @@
 	- ### Scripture Anchor: Acts 2:1-4 / Ephesians 5:18
 		- "They were all filled with the Holy Spirit..." "Be filled with the Spirit..."
 	- ### Focus
-		- Responding to the Spirit’s presence with hunger and surrender. Not just a moment of encounter, but a lifestyle of being filled and led by the Spirit.
+		- Responding to the Spirit’s presence with hunger and surrender.
+		- Not just a moment of encounter, but a ==lifestyle of being filled and led by the Spirit==.
+		- **Impartation of the Holy Spirit**
+			- Faith – Believe the Spirit is a promise for you (Acts 2:39)
+			- Desire – Ask the Father for the Spirit (Luke 11:13)
+			- Surrender – Yield your life, control, and plans
+			- Community – Be around others who are Spirit-filled
+			- Laying on of hands / prayer – Let others pray over you
+			- Wait and Worship – Don’t rush; let Him come
 	- ### Key Points
 		- The Holy Spirit is not just to be known—He is to be welcomed.
 		- Saturation is about full immersion, not partial awareness.
